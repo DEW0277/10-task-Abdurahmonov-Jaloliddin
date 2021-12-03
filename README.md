@@ -1,0 +1,1 @@
+# 10-task-Abdurahmonov-Jaloliddin
